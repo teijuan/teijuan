@@ -1,12 +1,12 @@
 - 👋 Hi, I’m **Tei**.  
 - 👀 I’m interested in ...  
-`M⬇` 🐰 🤰  
+CGI industry 
 - 🌱 I’m currently learning ...  
-Git  
-Jekyll  
-- 💞️ I’m looking to collaborate on ...  
+3D modeling
+- 💞️ I’m looking to collaborate on ...
+Animated movies
 - 📫 How to reach me ...  
-[Furaffinity](https://www.furaffinity.net/user/teixeira-juan/)  
-[tei-juan@hotmail.com](mailto:tei-juan@hotmail.com)  
+    - [Mail](mailto:tei-juan@hotmail.com)
+    - [Furaffinity](https://www.furaffinity.net/user/teixeira-juan/)  
 
 ![2022-12-30_art-fidget-noogy-puppet.jpg](https://d.furaffinity.net/art/teixeira-juan/1672523223/1672523223.teixeira-juan_2022-12-30_art-fidget-noogy-puppet.jpg)  
